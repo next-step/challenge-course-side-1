@@ -13,8 +13,7 @@
 
 - 이벤트스토밍 내용을 공유해주세요
 
-- [이벤트스토밍 링크](https://github.com/next-step/challenge-course-side-1.git)
-
+- [이벤트스토밍 링크](https://miro.com/welcomeonboard/dkF3dEdrT3ZZNnVMaGNYRk5EMkRnWG43SllJWk1XaElsdHpyZW9CQm9hSXQ2Y2RCWGx0TlhkYVpzaXlTN2NhU3wzNDU4NzY0NTM1ODkxMzE2OTY5fDI=?share_link_id=693762474849)
 
 ### 3단계 - 이력서
 
