@@ -13,6 +13,8 @@
 
 - 이벤트스토밍 내용을 공유해주세요
 
+[이벤트 스토밍](https://miro.com/app/board/uXjVPJc5Nrc=/?share_link_id=929943423871)
+
 
 ### 3단계 - 이력서
 
