@@ -19,3 +19,5 @@
 ### 3단계 - 이력서
 
 - 이력서를 공유해주세요 
+
+[이력서](https://peppered-beet-7f8.notion.site/3-Java-58257ca10ca34b418177829b75be01a2)
