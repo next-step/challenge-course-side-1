@@ -13,7 +13,8 @@
 
 - 이벤트스토밍 내용을 공유해주세요
 
+- [이벤트스토밍 링크](https://miro.com/welcomeonboard/dkF3dEdrT3ZZNnVMaGNYRk5EMkRnWG43SllJWk1XaElsdHpyZW9CQm9hSXQ2Y2RCWGx0TlhkYVpzaXlTN2NhU3wzNDU4NzY0NTM1ODkxMzE2OTY5fDI=?share_link_id=962182229120)
 
 ### 3단계 - 이력서
 
-- 이력서를 공유해주세요 
+- [노션 링크](https://leegeonhoe.notion.site/1df4c1f773034c62ae67d6020e25dd4a)
