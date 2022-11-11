@@ -76,4 +76,4 @@
 
 ### 3단계 - 이력서
 
-- 이력서를 공유해주세요 
+- [이력서](https://enjoy-funny-happy.notion.site/1-1-bc9981bf84dc446796f14d1f5ef66c5f)
